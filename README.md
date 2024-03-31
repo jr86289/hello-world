@@ -1,2 +1,2 @@
 # hello-world
-Open-minded
+Im very open-minded
